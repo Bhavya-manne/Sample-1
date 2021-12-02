@@ -34,6 +34,5 @@ Manipuri|Manipur
   
   ![Panipuri](https://im.whatshot.in/img/2018/Aug/shutterstock-797179129-1533660658.jpg)
   
-  ![IceCream](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTQ-4i09pNSwhIdcWQJ3hUT-V-pihE48OU-rw&usqp=CAU)
-  
-  ![Manchuria](https://zaykarecipes.com/eng/wp-content/uploads/2019/11/Dry-Cabbage-Manchurian-1280x720.jpg)
+  ![IceCream](https://img.etimg.com/thumb/msid-84939728,width-1200,height-900/magazines/panache/from-the-us-russia-to-india-an-ice-cream-bowl-has-a-long-political-history.jpg)
+ 
